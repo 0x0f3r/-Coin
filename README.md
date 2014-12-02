@@ -1,1 +1,1 @@
-[xxx](http://xxx)![asdf](http://asdf)
+![a[xxx](http://xxx)sdf](http://asdf)
