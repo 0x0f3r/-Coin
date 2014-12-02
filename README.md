@@ -1,7 +1,7 @@
 Preview
 -------
 ![xxx](http://i.imgur.com/v4Novtf.png)
-(image by [x![xxx](http://i.imgur.com/v4Novtf.png)chrix](https://bitcointalk.org/index.php?action=profile;u=60954))
+(image by [x![xxx](ht# [Bitcointalk Thread](https://bitcointalk.org/index.php?topic=67274.0) #tp://i.imgur.com/v4Novtf.png)chrix](https://bitcointalk.org/index.php?action=profile;u=60954))
 
 # [Bitcointalk Thread](https://bitcointalk.org/index.php?topic=67274.0) #
 
